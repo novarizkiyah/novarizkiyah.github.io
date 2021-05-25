@@ -1,1 +1,0 @@
-# novarizkiyah.github.io
